@@ -1,1 +1,0 @@
-Lucas Nardi - Snac Joaçaba
